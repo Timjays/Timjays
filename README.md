@@ -11,7 +11,7 @@ $\color{#C1E7D5}{˖ ݁𖥔 ݁˖ 𐙚 ˖ ݁𖥔 ݁˖}$
   you're caught up in my $\color{#DCE5C5}{spell}$.
 </p>
 <p align="center">
-<img src="https://i.postimg.cc/V6PjwGFR/Untitled57-20260422012729-fliter-green-pink-acid-channel-blue-mode-overlay.png"/>
+<img src="https://i.postimg.cc/KcP5GM4J/Untitled58-20260422020111.png"/>
 </p>
 
 <p align="center">
