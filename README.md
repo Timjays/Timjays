@@ -9,7 +9,7 @@ $\color{#C1E7D5}{˖ ݁𖥔 ݁˖ 𐙚 ˖ ݁𖥔 ݁˖}$
 $I \space know \space just \space where \space you're \space going \space to$ $\color{#B55F71}{shoot}$ .
 </p>
 <p align="center">
-<img src="https://cdn.discordapp.com/attachments/1472213344680153111/1496213226453467268/Untitled58_20260422020111.png?ex=69e910a7&is=69e7bf27&hm=b87ae97882a399821da524df767c5e6be5e9c3163e717deba305f12c2a1ca5a5&"/>
+<img src="https://i.postimg.cc/RFRNQpck/Sans-titre-127-20260421201556.png"/>
 </p>
 
 <p align="center">
