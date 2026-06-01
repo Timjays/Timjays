@@ -13,7 +13,7 @@ $I \space know \space just \space where \space you're \space going \space to$ $\
 </p>
 
 <p align="center">
-  <a href="https://rentry.co/jaytims">rentry</a> $\color{#C1E7D5}{✧}$ <a href="https://halos.atabook.org/">ata</a> $\color{#C1E7D5}{✧}$ <a href="https://rentry.co/puplamb">shared rentry</a> $\color{#C1E7D5}{✧}$ <a href="https://trueparadise.straw.page/">strawpage</a>
+  <a href="https://rentry.co/jaytims">rentry</a> $\color{#C1E7D5}{✧}$ <a href="https://halos.atabook.org/">ata</a> $\color{#C1E7D5}{✧}$ <a href="https://rentry.co/puplamb">shared rentry</a> $\color{#C1E7D5}{✧}$ <a href="https://trueparadise.straw.page/">strawpage</a> $\color{#C1E7D5}{✧}$ <a href="https://pronouns.cc/@jaysbullet">pronouns</a>
 </p>
 
 <p align="center">
